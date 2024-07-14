@@ -1,5 +1,4 @@
-![livraria](https://github.com/user-attachments/assets/28580381-5aa9-43f8-9380-683b3e39fa96)
-
+![livraria2](https://github.com/user-attachments/assets/dbbf4826-53a6-4378-93db-56b4f5e16f20)
 #Resumo das Atividades e Conceitos
 
 ##Introdução
